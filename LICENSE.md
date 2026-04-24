@@ -1,4 +1,4 @@
-
+advanced Script for jujutsu shenanigans is the best jujutsu shenanigans Script, featuring teleport and no clip. Safe and powerful for all your needs.
 
 
 
